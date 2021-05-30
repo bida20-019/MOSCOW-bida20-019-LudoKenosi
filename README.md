@@ -1,0 +1,2 @@
+# MOSCOW-bida20-019-LudoKenosi
+WMD ASSIGNMENT
